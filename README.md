@@ -1,0 +1,4 @@
+- 👋 Hi, I’m PRITIJAIN
+- 👀 I’m interested in Web designing
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on with other developing company.
